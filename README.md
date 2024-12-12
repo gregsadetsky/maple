@@ -1,6 +1,6 @@
 # March 2025 NYC ↔ Montreal Maple Sugar Shack Group Tour!!
 
-![cabane](https://github.com/user-attachments/assets/9719181a-c443-437d-9d39-5944d4d2f548)
+![cabane](https://github.com/user-attachments/assets/69ed7915-4844-4c12-8bfe-c6aa3fefdb03)
 
 ## What is it
 
