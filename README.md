@@ -31,4 +31,4 @@ This is a "semi-organized" tour, meaning that:
 - want/need more info? reach out to <a href="mailto:hi@greg.technology">greg</a>!
 - more Q/A's soon as they trickle in
 
-###### A Greg Technology production
+###### A Greg Technology production ❤️
