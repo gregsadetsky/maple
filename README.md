@@ -23,7 +23,7 @@ This is a "semi-organized" tour, meaning that:
 
 1. YOU need to book the roundtrip NYC<->Montreal Amtrak tickets yourself (you can do it!)
 2. Please let <a href="mailto:hi@greg.technology">Greg/me</a> know that you're coming - a screenshot of your Amtrak tickets help confirms this! :-) Once I know you're coming, I will modify the sugar shack reservation to include you.
-3. The idea is that you can mostly be on your own if you want to, you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurly Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
+3. The idea is that you can mostly be on your own if you want to: you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurely Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
 
 ## FAQ
 
