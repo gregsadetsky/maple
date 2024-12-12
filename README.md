@@ -12,17 +12,18 @@ Friday **March 21st** to Monday **March 24th** inclusive, in the year of 2025!
 
 ## Itinerary from New York City
 
-- Friday March 21st: New York -> Montreal by train ([Amtrak](https://www.amtrak.com/home.html))
-- Saturday March 22nd: "[Au Sentier de l'Érable](https://maps.app.goo.gl/6ejXwmCBAzsTNUN79)" Sugar Shack
-- Sunday March 23rd: Montreal activities (art, food, shopping, leisure)
-- Monday March 24th: Montreal -> New York by train (Amtrak)
+- Fri 3/21: New York -> Montreal by train ([Amtrak](https://www.amtrak.com/home.html))
+- Sat 3/22: "[Au Sentier de l'Érable](https://maps.app.goo.gl/6ejXwmCBAzsTNUN79)" Sugar Shack
+- Sun 3/23: Montreal activities (art, food, shopping, leisure)
+- Mon 3/24: Montreal -> New York by train (Amtrak)
 
 ## I want to book this!
 
 This is a "semi-organized" tour, meaning that:
-1) YOU need to book the roundtrip NYC<->Montreal Amtrak tickets yourself (you can do it!)
-2) Please let <a href="mailto:hi@greg.technology">Greg/me</a> know that you're coming - a screenshot of your Amtrak tickets help confirms this! :-) Once I know you're coming, I will modify the sugar shack reservation to include you.
-3) The idea is that you can mostly be on your own if you want to, you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurly Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
+
+1. YOU need to book the roundtrip NYC<->Montreal Amtrak tickets yourself (you can do it!)
+2. Please let <a href="mailto:hi@greg.technology">Greg/me</a> know that you're coming - a screenshot of your Amtrak tickets help confirms this! :-) Once I know you're coming, I will modify the sugar shack reservation to include you.
+3. The idea is that you can mostly be on your own if you want to, you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurly Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
 
 ## FAQ
 
