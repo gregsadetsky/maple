@@ -14,7 +14,7 @@ Friday **March 21st** to Monday **March 24th** inclusive, in the year of 2025!
 
 ## How much?
 
-- train tickets are $150 round trip right now NYC ↔ Montreal!! **DON'T WAIT, BUY THEM EARLY!! (see below)**
+- train tickets are ~~$150~~ $164 (it's going up!) round trip right now NYC ↔ Montreal!! **DON'T WAIT, BUY THEM EARLY!! (see below)**
 - the sugar shack meal is very roughly about $60 USD, if that
 - transportation to and from the sugar shack will cost... maybe $20 per person? this will be confirmed
 - you'd be spending 3 nights in Montreal - I'll try to provide some good hotel/hostel options
@@ -38,12 +38,14 @@ This is a "semi-"organized tour, meaning that:
 
 ## FAQ
 
-- Which sugar shack will it be?
+- which sugar shack will it be?
   - I will look into a few options, but so far "[Au Sentier de l'Érable](https://maps.app.goo.gl/6ejXwmCBAzsTNUN79)" is a pretty good candidate.
-- Will there be a vegetarian option?
-  - Yes, there will be a vegetarian option!
-- Is there a WhatsApp group?
-  - Yes there is! [Join here](https://chat.whatsapp.com/CeiBCn1s6h8KticJuDiXCp)
+- will there be a vegetarian option?
+  - yes, there will be a vegetarian option!
+- is there a WhatsApp group?
+  - yes there is! [join here](https://chat.whatsapp.com/CeiBCn1s6h8KticJuDiXCp)
+- wasn't there a super cool NYC-Montreal train demoparty a few years ago?
+  - yeah no totally - [Synchrony](https://nickm.com/synchrony/)!! it's extremely cool but I don't know if I can manage to do something as cool. but it's very cool/tempting. like on one hand should we bring our laptops (it is a ~10 hour ride both ways)? on the other hand, what if we didn't bring our laptops? would it be more relaxing? would it be more relaxing to code for 10 hours? but it would be fun, since we're all going as a group...... I don't know! let's think about it.
 - want/need more info? reach out to <a href="mailto:hi@greg.technology">greg</a>!
 - more Q/A's soon as they trickle in
 
