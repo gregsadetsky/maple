@@ -49,6 +49,8 @@ This is a "semi-"organized tour, meaning that:
 - hey greg, it's your faq, you do whatever you want - do you want to share some Quebec music?
   - heck yeah! [this](https://maremusique.bandcamp.com/album/jean-paul-guimond-fournisseur-officiel) album from 
 Jean​-​Paul Guimond is full of extremely beautiful traditional Quebec singing. [this](https://www.youtube.com/watch?v=f1Svjcda-84) is a super duper well known traditional song (it's so good). finally, [my friends](https://zephyrartillerie.bandcamp.com/album/chicago) recorded an album ~16 years ago and it's still so great. give it a listen. ok ok one last thing... [this](https://tirgroupe.bandcamp.com/track/thermoplastique) is one of my favorite punkish-hard-rock songs. that's it!
+- but I don't speak French!
+  - you'll be fine! just remember "[bonjour](https://www.youtube.com/watch?v=vukVrC09TKk)" which means hi, and you can even say it as goodbye, and "[merci](https://www.youtube.com/watch?v=fcAJOSeg1jE)" which means thanks. that and "[oui](https://www.youtube.com/watch?v=D9Uj15M0o2A)" (yes) and "[non](https://www.youtube.com/watch?v=RUCoDInBP9M)" (no) and you should be good! oh also "[s'il vous plaît](https://www.youtube.com/watch?v=vZE5uZ5uMJ8)" (please). you're good!
 - want/need more info? reach out to <a href="mailto:hi@greg.technology">greg</a>!
 - more Q/A's soon as they trickle in
 
