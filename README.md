@@ -33,13 +33,15 @@ This is a "semi-"organized tour, meaning that:
 1. **YOU** need to book the roundtrip NYC ↔ Montreal [Amtrak](https://www.amtrak.com/home.html) tickets yourself (you can do it! **DO IT AS SOON AS POSSIBLE THOUGH**)
    - I recommend getting the "Flex" ticket option which is fully refundable
 2. **YOU** need to book your hotel/hostel for the 3 nights (same, do it soon!)
-3. Please let <a href="mailto:hi@greg.technology">Greg (me)</a> know that you're coming - a screenshot of your Amtrak tickets helps confirm this! :-) Once I know you're coming, I will modify the sugar shack reservation to include you.
-4. The idea is that you can mostly be on your own if you want to: you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurely Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
+   - airbnb is an option, obviously
+   - you can also find a hostel: you usually have a range of options from a room with shared bunk beds ("dortoir") to private rooms ("chambre privée") for 2 or 5 people. one good place is [Auberge Chez Jean](http://www.aubergechezjean.com/)
+4. Please let <a href="mailto:hi@greg.technology">Greg (me)</a> know that you're coming - a screenshot of your Amtrak tickets helps confirm this! :-) Once I know you're coming, I will modify the sugar shack reservation to include you.
+5. The idea is that you can mostly be on your own if you want to: you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurely Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
 
 ## FAQ
 
 - which sugar shack will it be?
-  - I will look into a few options, but so far "[Au Sentier de l'Érable](https://maps.app.goo.gl/6ejXwmCBAzsTNUN79)" is a pretty good candidate.
+  - I will look into a few options!
 - will there be a vegetarian option?
   - yes, there will be a vegetarian option!
 - is there a WhatsApp group?
@@ -50,7 +52,7 @@ This is a "semi-"organized tour, meaning that:
   - heck yeah! [this](https://maremusique.bandcamp.com/album/jean-paul-guimond-fournisseur-officiel) album from 
 Jean​-​Paul Guimond is full of extremely beautiful traditional Quebec singing. [this](https://www.youtube.com/watch?v=f1Svjcda-84) is a super duper well known traditional song (it's so good). finally, [my friends](https://zephyrartillerie.bandcamp.com/album/chicago) recorded an album ~16 years ago and it's still so great. give it a listen. ok ok one last thing... [this](https://tirgroupe.bandcamp.com/track/thermoplastique) is one of my favorite punkish-hard-rock songs. that's it!
 - but I don't speak French!
-  - you'll be fine! just remember "[bonjour](https://www.youtube.com/watch?v=vukVrC09TKk)" which means hi, and you can even say it as goodbye, and "[merci](https://www.youtube.com/watch?v=fcAJOSeg1jE)" which means thanks. that and "[oui](https://www.youtube.com/watch?v=D9Uj15M0o2A)" (yes) and "[non](https://www.youtube.com/watch?v=RUCoDInBP9M)" (no) and you should be good! oh also "[s'il vous plaît](https://www.youtube.com/watch?v=vZE5uZ5uMJ8)" (please). you're good!
+  - you'll be fine! just remember "[bonjour](https://www.youtube.com/watch?v=vukVrC09TKk)" means hi, and you can even say it as goodbye, and "[merci](https://www.youtube.com/watch?v=fcAJOSeg1jE)" means thanks. also "[oui](https://www.youtube.com/watch?v=D9Uj15M0o2A)" (yes) and "[non](https://www.youtube.com/watch?v=RUCoDInBP9M)" (no) and you should be good! oh also "[s'il vous plaît](https://www.youtube.com/watch?v=vZE5uZ5uMJ8)" (please). you're good!
 - want/need more info? reach out to <a href="mailto:hi@greg.technology">greg</a>!
 - more Q/A's soon as they trickle in
 
