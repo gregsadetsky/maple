@@ -34,6 +34,7 @@ This is a "semi-"organized tour, meaning that:
    - I recommend getting the "Flex" ticket option which is fully refundable
 2. **YOU** need to book your hotel/hostel for the 3 nights (same, do it soon!)
    - airbnb is an option, obviously
+   - another option is [this nice hotel](https://maps.app.goo.gl/QJ3iSv1mYxw5TjJ6A) with an outdoor pool
    - you can also find a hostel: you usually have a range of options from a room with shared bunk beds ("dortoir") to private rooms ("chambre privée") for 2 or 5 people. one good place is [Auberge Chez Jean](http://www.aubergechezjean.com/)
 4. Please let <a href="mailto:hi@greg.technology">Greg (me)</a> know that you're coming - a screenshot of your Amtrak tickets helps confirm this! :-) Once I know you're coming, I will modify the sugar shack reservation to include you.
 5. The idea is that you can mostly be on your own if you want to: you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurely Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
