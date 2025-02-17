@@ -14,16 +14,17 @@ Friday **March 21st** to Monday **March 24th** inclusive, in the year of 2025!
 
 ## How much?
 
-- train tickets are ~~$150~~ $164 (it's going up!) round trip right now NYC ↔ Montreal!! **DON'T WAIT, BUY THEM EARLY!! (see below)**
-- the sugar shack meal is very roughly about $60 USD, if that
-- transportation to and from the sugar shack will cost... maybe $20 per person? this will be confirmed
+- train tickets are ~~$150~~ $157 (it's going up!) round trip right now NYC ↔ Montreal!! **DON'T WAIT, BUY THEM EARLY!! (see below)**
+- the sugar shack meal is very roughly about $50 USD, if that
+- transportation to and from the sugar shack will cost about $40 USD per person (this will be confirmed)
 - you'd be spending 3 nights in Montreal - I'll try to provide some good hotel/hostel options
+- total: train + sugar shack + transport + hotel = 400-500 USD, very approximately.
 
 ## Itinerary from New York City
 
 - Fri 3/21: New York → Montreal by train
 - Sat 3/22: Sugar shack day!
-- Sun 3/23: Montreal activities (art, food, shopping, leisure) - suggestions/a map will be provided!
+- Sun 3/23: Montreal activities (art, food, shopping, leisure)
 - Mon 3/24: Montreal → New York by train
 
 ## I want this! aka How To Book
@@ -33,11 +34,12 @@ This is a "semi-"organized tour, meaning that:
 1. **YOU** need to book the roundtrip NYC ↔ Montreal [Amtrak](https://www.amtrak.com/home.html) tickets yourself (you can do it! **DO IT AS SOON AS POSSIBLE THOUGH**)
    - I recommend getting the "Flex" ticket option which is fully refundable
 2. **YOU** need to book your hotel/hostel for the 3 nights (same, do it soon!)
+   - some people are staying at [Auberge du Plateau](https://maps.app.goo.gl/FxY4GVdZLLYamZoD9)
    - airbnb is an option, obviously
    - another option is [this nice hotel](https://maps.app.goo.gl/QJ3iSv1mYxw5TjJ6A) (that's connected to the train station in the underground city) with a heated outdoor pool
-   - you can also find a hostel: you usually have a range of options from a room with shared bunk beds ("dortoir") to private rooms ("chambre privée") for 2 or 5 people. one good place is [Auberge Chez Jean](http://www.aubergechezjean.com/)
-3. **Please join** the [WhatsApp group](https://chat.whatsapp.com/CeiBCn1s6h8KticJuDiXCp) so that Greg can keep a tally of who's coming.
-4. The idea is that you can mostly be on your own if you want to: you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurely Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
+   - you can also find a hostel: you usually have a range of options from a room with shared bunk beds ("dortoir") to private rooms ("chambre privée") for 2 or 5 people. one good place is [Auberge Chez Jean](http://www.aubergechezjean.com/). 
+4. **JOIN** the [WhatsApp group](https://chat.whatsapp.com/CeiBCn1s6h8KticJuDiXCp) so that Greg can keep a tally of who's coming.
+5. The idea is that you can mostly be on your own if you want to: you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurely Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
 
 ## FAQ
 
