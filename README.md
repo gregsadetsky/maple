@@ -32,19 +32,19 @@ Friday **March 21st** to Monday **March 24th** inclusive, in the year of 2025!
 This is a "semi-"organized tour, meaning that:
 
 1. **YOU** need to book the roundtrip NYC ↔ Montreal [Amtrak](https://www.amtrak.com/home.html) tickets yourself (you can do it! **DO IT AS SOON AS POSSIBLE THOUGH**)
-   - I recommend getting the "Flex" ticket option which is fully refundable
+   - I recommend getting the "**Flex**" ticket option which is fully refundable
 2. **YOU** need to book your hotel/hostel for the 3 nights (same, do it soon!)
    - some people are staying at [Auberge du Plateau](https://maps.app.goo.gl/FxY4GVdZLLYamZoD9)
    - airbnb is an option, obviously
    - another option is [this nice hotel](https://maps.app.goo.gl/QJ3iSv1mYxw5TjJ6A) (that's connected to the train station in the underground city) with a heated outdoor pool
    - you can also find a hostel: you usually have a range of options from a room with shared bunk beds ("dortoir") to private rooms ("chambre privée") for 2 or 5 people. one good place is [Auberge Chez Jean](http://www.aubergechezjean.com/). 
-4. **JOIN** the [WhatsApp group](https://chat.whatsapp.com/CeiBCn1s6h8KticJuDiXCp) so that Greg can keep a tally of who's coming.
+4. **PLEASE JOIN** the [WhatsApp group](https://chat.whatsapp.com/CeiBCn1s6h8KticJuDiXCp) so that Greg can keep a tally of who's coming.
 5. The idea is that you can mostly be on your own if you want to: you can fly to Montreal instead of taking the train, you can join other people on Sunday for leisurely Montreal activities or not, it's all good. But if you want to join everyone else, we'll try to do things as a group as well!
 
 ## FAQ
 
 - which sugar shack will it be?
-  - I will look into a few options!
+  - [Érablière Charbonneau](https://www.erablierecharbonneau.qc.ca/en/maple-grove)!!
 - will there be a vegetarian option?
   - yes, there will be a vegetarian option!
 - wasn't there a super cool NYC-Montreal train demoparty a few years ago?
