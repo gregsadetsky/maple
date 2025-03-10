@@ -16,7 +16,9 @@ Friday **March 21st** to Monday **March 24th** inclusive, in the year of 2025!
 
 ## How much?
 
-- train tickets are ~~$150~~ $157 (it's going up!) round trip right now NYC ↔ Montreal!! **DON'T WAIT, BUY THEM EARLY!! (see below)**
+<span style="background-color: #FFFF00">WE ARE AT CAPACITY, PLEASE CHECK WITH GREG BEFORE BOOKING ANYTHING</span>
+
+- train tickets are ~~$150~~ $164 (it's going up!) round trip right now NYC ↔ Montreal!! **DON'T WAIT, BUY THEM EARLY!! (see below)**
 - the sugar shack meal is very roughly about $50 USD, if that
 - transportation to and from the sugar shack will cost about $40 USD per person (this will be confirmed)
 - you'd be spending 3 nights in Montreal - I'll try to provide some good hotel/hostel options
@@ -30,6 +32,8 @@ Friday **March 21st** to Monday **March 24th** inclusive, in the year of 2025!
 - Mon 3/24: Montreal → New York by train
 
 ## I want this! aka How To Book
+
+<span style="background-color: #FFFF00">WE ARE AT CAPACITY, PLEASE CHECK WITH GREG BEFORE BOOKING ANYTHING</span>
 
 This is a "semi-"organized tour, meaning that:
 
