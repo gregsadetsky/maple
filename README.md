@@ -1,3 +1,5 @@
+<span style="background-color: #FFFF00">WE ARE AT CAPACITY, PLEASE CHECK WITH GREG BEFORE BOOKING ANYTHING</span>
+
 # March 2025 NYC ↔ Montreal Maple Sugar Shack Group Tour!!
 
 ![cabane](https://github.com/user-attachments/assets/69ed7915-4844-4c12-8bfe-c6aa3fefdb03)
